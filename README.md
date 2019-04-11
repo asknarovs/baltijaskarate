@@ -1,0 +1,1 @@
+# Baltijas Karate klubs
